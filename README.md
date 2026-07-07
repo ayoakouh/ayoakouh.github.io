@@ -1,1 +1,0 @@
-# ayoakouh.github.io
